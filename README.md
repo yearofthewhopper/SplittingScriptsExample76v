@@ -7,7 +7,7 @@
 
 If you liked this consider signing up for my [Patreon](https://www.patreon.com/user?u=20402687)
 
-Follow me on Instagram [@positlabs](https://instagram.com/alwayscodingsomething) and try out my effects!
+Follow me on Instagram [@alwayscodingsomething](https://instagram.com/alwayscodingsomething) and try out my effects!
 
 Have questions? Join the [Spark AR Community](https://www.facebook.com/groups/SparkARcommunity/) group on Facebook.
 
